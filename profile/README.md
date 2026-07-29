@@ -2,7 +2,7 @@
 
 <img src="https://raw.githubusercontent.com/BlueFenixProductions/.github/main/assets/bfp-wordmark.png" width="440" alt="blue fenix Productions" />
 
-> Let's play 🏴‍☠️
+> 🐦‍🔥Imagine that. 🏴‍☠️
 
 [bluefenixproductions.com](https://bluefenixproductions.com) |
 [PRI - Prospect Risk Intelligence](https://prospectriskintelligence.com) |
